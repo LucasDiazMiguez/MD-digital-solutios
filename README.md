@@ -1,1 +1,1 @@
-# MD-digital-solutios
+# MD-digital-solutions
